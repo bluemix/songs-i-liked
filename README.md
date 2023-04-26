@@ -1,5 +1,7 @@
 *Songs I liked while listening either to Apple Music, Spotify or 181.fm*
 
+Out Of My League
+Fitz & The Tantrums
 
 Pirate Radio*
 Jean Dawson
